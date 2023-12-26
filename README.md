@@ -1,15 +1,17 @@
 <p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐂𝐚𝐫𝐫𝐝 || https://rudeszczury.carrd.co <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐆𝐮𝐞𝐬𝐭𝐛𝐨𝐨𝐤 || https://rudyszczur.123guestbook.com <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
 <p align="center">
 <img src=https://cdn.discordapp.com/attachments/872217789589504031/1189297455720845322/ezgif.com-resize_2.gif?ex=659da691&is=658b3191&hm=a07c82b36344a0f0ac627098354b2bb78f0414b76eb4c6dccff97fe75ddc570a&>
+  <p align="center">
+<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐂𝐚𝐫𝐫𝐝 || https://rudeszczury.carrd.co || <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
+<p align="center">
+<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐆𝐮𝐞𝐬𝐭𝐛𝐨𝐨𝐤 || https://rudyszczur.123guestbook.com || <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
 <p align="center">
 <img src=https://pixelsafari.neocities.org/blinkies/loveyou.gif>
 <p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+<p align="center">
+<img src=https://gifcity.carrd.co/assets/images/gallery94/7a670b97.gif?v=7421cb56>
 <p align="center">
 <img src=https://pixelsafari.neocities.org/dividers/bow/black.png>
 <p align="center">
