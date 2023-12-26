@@ -15,9 +15,11 @@
 <p align="center">
 <img src=https://gifcity.carrd.co/assets/images/gallery92/c5f3c8a5.gif?v=7421cb56> <img src=https://gifcity.carrd.co/assets/images/gallery47/06ea90ae.gif?v=7421cb56><img src=https://gifcity.carrd.co/assets/images/gallery47/06ea90ae.gif?v=7421cb56> <img src=https://gifcity.carrd.co/assets/images/gallery92/c5f3c8a5.gif?v=7421cb56>
 <p align="center">
-
+|| 𝐍𝐨𝐰 𝐩𝐥𝐚𝐲𝐢𝐧𝐠 ||
 <p align="center">
-0:35 ━❍──────── -5:32
+𝑃𝑒𝑔𝑔𝑦 𝐵𝑟𝑜𝑤𝑛 - 𝑀𝑦𝑠𝑙𝑜𝑣𝑖𝑡𝑧
+<p align="center">
+0:35 ━❍──────── 3:32
 <p align="center">
 ↻     ⊲  Ⅱ  ⊳     ↺
 <p align="center">
