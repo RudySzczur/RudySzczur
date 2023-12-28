@@ -1,7 +1,9 @@
 <p align="center">
+𝐷𝑒𝑠𝑘𝑡𝑜𝑝 𝑣𝑖𝑒𝑤 𝑎𝑛𝑑 𝑑𝑎𝑟𝑘 𝑚𝑜𝑑𝑒 𝑎𝑝𝑝𝑟𝑒𝑐𝑖𝑎𝑡𝑒𝑑
+<p align="center">
 <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
 <p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-H4.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif>
+<img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-H4.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif>
 <p align="center">
 <img src=https://cdn.discordapp.com/attachments/872217789589504031/1189297455720845322/ezgif.com-resize_2.gif?ex=659da691&is=658b3191&hm=a07c82b36344a0f0ac627098354b2bb78f0414b76eb4c6dccff97fe75ddc570a&>
 <p align="center">
@@ -55,7 +57,15 @@
 <p align="center">
 <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/blinkies/loveyou.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif>
 <p align="center">
-
+<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> || 𝐊𝐫𝐲𝐧𝐢𝐮 || 𝐵𝑒𝑠𝑡𝑒𝑠𝑡 𝑝𝑎𝑟𝑡𝑛𝑒𝑟 𝑖𝑙𝑦𝑠𝑚 <3 <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+<p align="center">
+<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> || 𝐀𝐞𝐞𝐧𝐢𝐜 || 𝐍𝐨𝐞𝐦𝐢 || 𝐖𝐢𝐤𝐚 || 𝑏𝑒𝑠𝑡 𝑜𝑓 𝑡ℎ𝑒 𝑏𝑒𝑠𝑡 𝑝𝑜𝑜𝑘𝑖𝑒𝑠 <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+<p align="center">
+<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> || 𝐒𝐚𝐥𝐞𝐦 || 𝐑𝐞𝐣 || 𝐏𝐢𝐦𝐩𝐮ś || Ż𝐞𝐥𝐮ś || 𝐎𝐧𝐲𝐱 || 勇士 𝑉𝑜𝑙.𝟸 𝑐𝑜𝑟𝑒 <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+<p align="center"> 
+<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> || 𝐆𝐚𝐛𝐫𝐲ś || 𝐋𝐞𝐚 || 𝐒𝐫𝐮𝐛𝐚 || 𝐌𝐚𝐫𝐜𝐞𝐥𝐢𝐧𝐚 || 𝐙𝐞𝐥𝐥 || 𝐓𝐨𝐣𝐚 || <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
+<p align="center">
+<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> || 𝐒𝐤𝐢𝐩𝐩𝐞𝐫 || 𝐀𝐛𝐢𝐳𝐮 || 𝐏𝐡𝐨𝐭𝐨𝐒𝐲𝐬 || 𝐀𝐦𝐚𝐫𝐢𝐬 || 𝐌𝐚𝐫𝐜𝐢𝐚 ||  <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
 <p align="center">
 <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/blinkies/loveyou.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif>
 <p align="center">
