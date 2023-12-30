@@ -3,7 +3,7 @@
 <p align="center">
 <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
 <p align="center">
-<img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-H4.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif>
+<img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://cdn.discordapp.com/attachments/872217789589504031/1190714963879272498/blinkiesCafe-v2.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif>
 <p align="center">
 <img src=https://cdn.discordapp.com/attachments/872217789589504031/1189723455323643964/ezgif.com-resize_3.gif>
 <p align="center">
