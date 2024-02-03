@@ -13,9 +13,7 @@
 <p align="center">
 <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐷𝑜𝑛'𝑡 𝑐𝑜𝑝𝑦 𝑚𝑦 𝑠𝑘𝑖𝑛𝑠 𝑝𝑙𝑒𝑎𝑠𝑒!! 𝐴𝑠𝑘 𝑓𝑜𝑟 𝑖𝑛𝑠𝑝𝑜 𝑜𝑟 𝑡𝑢𝑡𝑜!! <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
 <p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐂𝐚𝐫𝐫𝐝 || https://rudeszczury.carrd.co || <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐆𝐮𝐞𝐬𝐭𝐛𝐨𝐨𝐤 || https://rudyszczur.123guestbook.com || <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
+<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> https://rudeszczury.carrd.co || https://rudyszczur.123guestbook.com <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
 <p align="center">
 <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
 <p align="center">
