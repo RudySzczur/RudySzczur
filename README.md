@@ -1,25 +1,12 @@
 <p align="center">
-𝐷𝑒𝑠𝑘𝑡𝑜𝑝 𝑣𝑖𝑒𝑤 𝑎𝑛𝑑 𝑑𝑎𝑟𝑘 𝑚𝑜𝑑𝑒 𝑎𝑝𝑝𝑟𝑒𝑐𝑖𝑎𝑡𝑒𝑑
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://cdn.discordapp.com/attachments/872217789589504031/1190714963879272498/blinkiesCafe-v2.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif>
-<p align="center">
-<img src=https://cdn.discordapp.com/attachments/872217789589504031/1189723455323643964/ezgif.com-resize_3.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐻𝑖𝑖! 𝐼 𝑙𝑜𝑣𝑒 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡𝑖𝑛𝑔 𝑤𝑖𝑡ℎ 𝑝𝑒𝑜𝑝𝑙𝑒, 𝑠𝑜 𝑑𝑜𝑛'𝑡 𝑓𝑒𝑎𝑟 𝑡𝑜 𝑡𝑎𝑙𝑘 𝑡𝑜 𝑚𝑒!! 𝐼 𝑑𝑜𝑛'𝑡 𝑏𝑖𝑡𝑒 𝑖 𝑝𝑟𝑜𝑚𝑖𝑠𝑒 :𝟹 <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐼 𝑓𝑜𝑙𝑙𝑜𝑤 𝑏𝑎𝑐𝑘 𝑜𝑛 𝑔𝑖𝑡ℎ𝑢𝑏 <𝟹 𝑆𝑖𝑔𝑛 𝑚𝑦 𝑔𝑢𝑒𝑠𝑡𝑏𝑜𝑜𝑘!! 𝐼 𝑐ℎ𝑒𝑐𝑘 𝑑𝑎𝑖𝑙𝑦 <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> 𝐷𝑜𝑛'𝑡 𝑐𝑜𝑝𝑦 𝑚𝑦 𝑠𝑘𝑖𝑛𝑠 𝑝𝑙𝑒𝑎𝑠𝑒!! 𝐴𝑠𝑘 𝑓𝑜𝑟 𝑖𝑛𝑠𝑝𝑜 𝑜𝑟 𝑡𝑢𝑡𝑜!! <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif> https://rudeszczury.carrd.co || https://rudyszczur.123guestbook.com <img src=https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink6.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+<img src=https://pixelsafari.neocities.org/dividers/bow/black.png>
+<div align="center">
+<p>  <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> 𝐻𝑖𝑖! 𝐼𝑚 𝑀𝑎𝑠ł𝑜!! 𝐼 𝑙𝑜𝑣𝑒 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡𝑖𝑛𝑔 𝑤𝑖𝑡ℎ 𝑝𝑒𝑜𝑝𝑙𝑒 𝑠𝑜 𝑑𝑜𝑛'𝑡 𝑓𝑒𝑎𝑟 𝑡𝑜 𝑡𝑎𝑙𝑘 𝑡𝑜 𝑚𝑒!! 𝐼 𝑑𝑜𝑛'𝑡 𝑏𝑖𝑡𝑒 𝑖 𝑝𝑟𝑜𝑚𝑖𝑠𝑒 :𝟹 <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> <p/>
+<p> <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> 𝐷𝑜𝑛'𝑡 𝑐𝑜𝑝𝑦 𝑚𝑦 𝑠𝑘𝑖𝑛𝑠 𝑝𝑙𝑒𝑎𝑠𝑒!! 𝐴𝑠𝑘 𝑓𝑜𝑟 𝑖𝑛𝑠𝑝𝑜 𝑜𝑟 𝑡𝑢𝑡𝑜!! <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> <p/>
+<p> <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> 𝐼 𝑓𝑜𝑙𝑙𝑜𝑤 𝑏𝑎𝑐𝑘 𝑜𝑛 𝑔𝑖𝑡ℎ𝑢𝑏 <𝟹 𝑆𝑖𝑔𝑛 𝑚𝑦 𝑔𝑢𝑒𝑠𝑡𝑏𝑜𝑜𝑘!! 𝐼 𝑐ℎ𝑒𝑐𝑘 𝑑𝑎𝑖𝑙𝑦 <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> <p/>
+<p> <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> https://rudeszczury.carrd.co || https://rudyszczur.123guestbook.com <img src=https://pixelsafari.neocities.org/favicon/fashion/bow/black5.png> <p/>
 <p align="center">
 <img src=https://gifcity.carrd.co/assets/images/gallery94/7a670b97.gif?v=7421cb56>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/dividers/bow/black.png>
 <p align="center">
 🢀  <img src=https://media.discordapp.net/attachments/684498367274811409/1189274938616586321/ab1.png?ex=659d9199&is=658b1c99&hm=623e73b2725a57cf32662ff6141ea99a1bd51c5c2c3077ecea2058d83584568a&=&format=webp&quality=lossless&width=25&height=25> 
 <img src=https://media.discordapp.net/attachments/684498367274811409/1189274938876637275/mys.png?ex=659d9199&is=658b1c99&hm=e7136ba86e48fc5691e11e83b7b19937302883a413d3c847e147950268483edb&=&format=webp&quality=lossless&width=40&height=40> 
@@ -47,15 +34,5 @@
 <p align="center">
 <img src=https://pixelsafari.neocities.org/dividers/bow/black.png>
 <p align="center">
-<img src=https://gifcity.carrd.co/assets/images/gallery94/7a670b97.gif?v=7421cb56>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
-<p align="center">
-<img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/blinkies/loveyou.gif> <img src=https://pixelsafari.neocities.org/favicon/animals/bunny/bunny37.gif> <img src=https://pixelsafari.neocities.org/dividers/spinningflower.gif>
-<p align="center">
-<img src=https://cdn.discordapp.com/attachments/872217789589504031/1189297455720845322/ezgif.com-resize_2.gif?ex=659da691&is=658b3191&hm=a07c82b36344a0f0ac627098354b2bb78f0414b76eb4c6dccff97fe75ddc570a&>
-<p align="center">
-𝑊𝑜𝑤!! 𝑦𝑜𝑢 𝑠𝑐𝑟𝑜𝑙𝑙𝑒𝑑 𝑑𝑜𝑤𝑛 𝑡ℎ𝑖𝑠 𝑓𝑎𝑟!! 𝑇ℎ𝑎𝑛𝑘𝑠 𝑓𝑜𝑟 𝑐ℎ𝑒𝑐𝑘𝑖𝑛𝑔 𝑚𝑦 𝑔𝑖𝑡ℎ𝑢𝑏 𝑜𝑢𝑡 <𝟹
-<p align="center">
-<img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png><img src=https://pixelsafari.neocities.org/dividers/rufflebows.png> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif> <img src=https://pixelsafari.neocities.org/favicon/symbol/heart/jelly.gif>
+
 
