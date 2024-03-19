@@ -1,3 +1,5 @@
+
+<p align="center">
 «──────────────────────── « ⋅ʚ<img src="https://pixelsafari.neocities.org/favicon/symbol/heart/crystal2.gif">ɞ⋅ » ────────────────────────»
 </p>
 
