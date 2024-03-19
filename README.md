@@ -1,9 +1,3 @@
-<div align="center">
-
-ㅤㅤㅤㅤ<p> <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif"> [𝐒𝐤𝐚𝐧𝐞𝐫 - 𝐖𝐚𝐤𝐚𝐜𝐲𝐣𝐧𝐲 𝐑𝐨𝐦𝐚𝐧𝐬](https://youtu.be/mqzuLVJEXO8?si=KKkHD374CbQ_QXYN) <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif"> <p/>
-</div>
-
-<p align="center">
 «──────────────────────── « ⋅ʚ<img src="https://pixelsafari.neocities.org/favicon/symbol/heart/crystal2.gif">ɞ⋅ » ────────────────────────»
 </p>
 
