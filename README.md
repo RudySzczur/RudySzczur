@@ -1,3 +1,7 @@
+<div align="center">
+
+ㅤㅤㅤㅤ<p>  [! HELP PALESTINE !](https://arab.org/click-to-help/palestine/) <p/>
+</div>
 
 <p align="center">
 «──────────────────────── « ⋅ʚ<img src="https://pixelsafari.neocities.org/favicon/symbol/heart/crystal2.gif">ɞ⋅ » ────────────────────────»
