@@ -15,7 +15,7 @@
 
 <div align="center">
 
-ㅤㅤㅤㅤ<p> <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif"> [𝐌𝐲 𝐂𝐚𝐫𝐫𝐝](https://rudeszczury.carrd.co) ㅤ [𝐌𝐲 𝐆𝐮𝐞𝐬𝐭𝐛𝐨𝐨𝐤](https://rudyszczur.123guestbook.com) <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif"> <p/>
+ㅤㅤㅤㅤ<p> <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif"> [𝐌𝐲 𝐆𝐮𝐞𝐬𝐭𝐛𝐨𝐨𝐤](https://rudyszczur.123guestbook.com) <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif"> <p/>
 <p> ${\color{orange}Hii!! \space I'm \space Masło!! \space I \space love \space interacting \space with \space people, \space so \space don't \space fear \space to \space talk \space to \space me!! \space I \space don't \space bite \space I \space promise:3}$ </p>
 <p> ${\color{orange} C+H \space is \space always \space welcome!! \space I \space usually \space sit \space alone \space on \space the \space path \space between \space gi \space and \space rythm \space games \space areas,}$ </p>
 <p> ${\color{orange}I'm \space afk \space 99 \space percent \space of \space the \space time \space so \space use \space whisp!!}$ </p>
