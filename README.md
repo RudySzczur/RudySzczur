@@ -1,5 +1,3 @@
-<p align="center">
-VOTE ON ME PLEASE 🙏 https://twitter.com/ponytown_awards/status/1781854390233518537?t=xKBCY7RYqQUdAw3bRagzqA&s=19
 
 <div align="center">
 
