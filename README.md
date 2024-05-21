@@ -7,7 +7,7 @@
 
 <div align="center">
 
-ㅤㅤㅤㅤ<p> Rmking it rn help me,,, [My 2nd acc](https://github.com/MasloWybuchowe) ,, [Draw me smth!!!](https://drawme.share-on.me/g3Ur5n40Ay) ,, [My Guestbook](https://rudyszczur.123guestbook.com) ,, [My carrd](https://rudeszczury.carrd.co) that i recently remade check it out <3 <p/>
+ㅤㅤㅤㅤ<p> Rmking it rn help me,,, My [2nd acc](https://github.com/MasloWybuchowe) ,, [Draw me smth!!!](https://drawme.share-on.me/g3Ur5n40Ay) ,, My [Restrospring](https://retrospring.net/@rudeszczury) ,, My [ carrd](https://rudeszczury.carrd.co) that i recently remade check it out <3 <p/>
 <p> Hi! Im Masło i love interacting with people so dont fear to talk to me!!</p>
 <p>Use whisp tho bc im 99% of the time off-tab doin stuff</p>
 <p>C + H always welcome even if i sit with friends!</p>
