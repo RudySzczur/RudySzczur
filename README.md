@@ -8,7 +8,7 @@
 <div align="center">
 
 ㅤㅤㅤㅤ<p> Will rmk it one day trust,,, My [2nd acc](https://github.com/MasloWybuchowe),, My [Restrospring](https://retrospring.net/@rudeszczury) ,, My [ carrd](https://rudeszczury.carrd.co) <3 <p/>
-<p> Halloo!!! Im Masło I love interacting with people so dont fear to talk to me!! I'm nice trust,, </p>
+<p> Halloo!!! Im Masło I love interacting with people so dont fear to talk to me!! I'm very nice trust!</p>
 <p>Use whisp tho bc im 99% of the time off-tab playing or drawingg</p>
 <p>C + H always welcome even if i sit with friends!!!</p>
 <p>THE PATh is mine!!! >:(((( /j I love my path</p>
